@@ -1,1 +1,3 @@
-# Dev-bdCalling
+# bdCalling IT LTD
+
+bdCalling IT Ltd. is a freelance IT firm based in Bangladesh. Muhammad Monir Hossain founded it. It's a fast-growing startup based on freelance work. This organization has grown from a personal drawing-room to employing over 250+ individuals in two corporate offices. Recently, they added another corporate office to increase their capacity. It is a very friendly, positive and helpful office environment. The company has always made sure 30% of its employees are female. They are working hard to achieve their goal and positively impact the country's economy. bdCalling is a family I'm proud to belong to.
